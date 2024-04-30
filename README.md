@@ -1,1 +1,0 @@
-# ERNEST-Code-Challenge-1
